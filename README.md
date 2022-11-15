@@ -1,0 +1,1 @@
+# bu n88 bn praktika
